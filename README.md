@@ -1,16 +1,14 @@
-## Hi there 👋
+> how nice how nice,
 
-<!--
-**lonely-lonely/lonely-lonely** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+   ![lonely-club-hatsune-miku](https://github.com/user-attachments/assets/5529d551-7dee-401c-8e80-407c52c5f807)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> our lovely club is! 
+
+
+
+
+
+
+[ata](https://hello-annie.atabook.org/) 
+[straw](https://bloxxing-my-opps.straw.page)
